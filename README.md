@@ -1,1 +1,1 @@
-Buy me a coffee: coff.ee/h2337
+[!["Buy Me A Coffee"](https://www.buymeacoffee.com/assets/img/custom_images/orange_img.png)](https://www.buymeacoffee.com/h2337)
